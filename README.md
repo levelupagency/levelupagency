@@ -1,0 +1,3 @@
+- 👋 Dijitalde Seviye Yükselten Ajans
+- 👀 Performans ve dijital odaklı çözümler
+- 🌱 "Burada herkes dijital..."
